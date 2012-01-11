@@ -1,0 +1,1 @@
+Greengreen es un proyecto orientado a potenciar el consumo local y sostenible, por medio de la puesta en contacto entre productores y consumidores.
